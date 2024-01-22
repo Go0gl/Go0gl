@@ -6,7 +6,6 @@ if you wanna reach me, idfk, my Discord is .googl so just DM me
 
 ![](https://komarev.com/ghpvc/?username=Go0gl)
 
-<p>The site with my friends:<p/>
+<p>The sites:<p/>
 <p></p>jbglitches.github.io<p/>
-My site:
-Go0gl.github.io
+<p>Go0gl.github.io</p>
