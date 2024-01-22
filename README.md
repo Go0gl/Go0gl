@@ -8,4 +8,4 @@ if you wanna reach me, idfk, my Discord is .googl so just DM me
 
 The sites:
 > jbglitches.github.io
-> Go0gl.github.io
+Go0gl.github.io
